@@ -1,6 +1,8 @@
-### basically a more specific intro
+### basically a more specific intro for me :D
 
 - __IM TOM!__ OR JUST CALL ME ANY CHARACTERS I USE IN *PT*
+
+MINOR ***(-18)*** & WILL TELL **MORE STUFF** IF IM `COMFORTABLE`
 
    = ```(I AM A CIS MALE, I DO **NOT** CARE IF YOU USE ANY PRONOUNS ON ME)```
   
@@ -44,7 +46,7 @@ well... you will find out i guess, though I prefer to chill on *pt* while doing 
 ```MOCHAMY SOOT . LEMON WAFFLES . KAT . BUBB```
 
 ***
-### . . . CHAOS CONTROL!
+# . . . CHAOS CONTROL!
 
 ![image](https://github.com/user-attachments/assets/e367ffa2-9010-4d76-9afb-86c92544ed89)
 
