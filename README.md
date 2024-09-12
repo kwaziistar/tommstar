@@ -41,13 +41,7 @@ well... you will find out i guess, though I prefer to chill on *pt* while doing 
 
 *BY THEIR NAME IN GAME!*
 
-`MOCHAMY SOOT`
-
-`LEMON WAFFLES`
-
-`KAT`
-
-`BUBB`
+```MOCHAMY SOOT . LEMON WAFFLES . KAT . BUBB```
 
 ***
 ### . . . CHAOS CONTROL!
