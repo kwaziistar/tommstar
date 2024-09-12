@@ -34,6 +34,9 @@ well... you will find out i guess, though I prefer to chill on *pt* while doing 
 
 ![image](https://github.com/user-attachments/assets/4864f24b-ca6e-4e6a-8733-3ba53dc943aa)
 
+![image](https://github.com/user-attachments/assets/fc23527f-2ca2-4ede-8089-5f179334baf0)
+
+
 = _ONLINE FAMILY_=
 ```ALEX, MICHAEL, TECHNO, PANCAKE, ENDER, SASHY```
 
