@@ -22,7 +22,7 @@ Im ```half-filipino``` and tagalog **isnt** my first language lmao
 
 ```going online in this mentally ill gayme and uhm disappearing for a long time.```
 
-I really dont know, all I do is draw and hang out with my bestest buddies!!!
+- I really dont know, all I do is draw and hang out with my bestest buddies!!!
 
 = (AND IF I EVER MAKE YOU FEEL UNCOMFORTABLE I REALLY APOLOGIZE)
 
@@ -30,7 +30,7 @@ I really dont know, all I do is draw and hang out with my bestest buddies!!!
 
 # ASK ME FOR MY SOCIALS !! (whcih i barely have)
 
-well... you will find out i guess, though I prefer to chill on *pt* while doing stuff lolols
+- well... you will find out i guess, though I prefer to chill on *pt* while doing stuff lolols
 
 ![image](https://github.com/user-attachments/assets/4864f24b-ca6e-4e6a-8733-3ba53dc943aa)
 
