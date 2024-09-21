@@ -1,6 +1,7 @@
-### basically a more specific intro for me :D
+### basically a more specific intro for me !
 
 - __IM TOM!__ OR JUST CALL ME ANY CHARACTERS I USE IN *PT*
+- star is fine too lmao, i dont mind at all :)
 
 MINOR ***(-18)*** & WILL TELL **MORE STUFF** IF IM `COMFORTABLE`
 
@@ -11,18 +12,18 @@ MINOR ***(-18)*** & WILL TELL **MORE STUFF** IF IM `COMFORTABLE`
   ![image](https://github.com/user-attachments/assets/acaeb707-8012-4146-815e-5735aff4d466)
 *- art by me on microsoft paint*
 
-Im ```half-filipino``` and tagalog **isnt** my first language lmao
+Im ```half-filipino``` and english **is** my first language
 
-= I can be dry at some point in a conversation but trust me, i can talk in tiktok whatever the heck language that is 
-
-*(yet i still dont know how to speak my own language.)*
+= I can be dry at some point in a conversation - im socially awkward soz
+*(im not THAT dry, i dont want anyone to think im boring)*
 
 ***
 ## what are my super cool hobbies?
 
 ```going online in this mentally ill gayme and uhm disappearing for a long time.```
 
-- I really dont know, all I do is draw and hang out with my bestest buddies!!!
+- I really dont know what I do,
+
 
 = (AND IF I EVER MAKE YOU FEEL UNCOMFORTABLE I REALLY APOLOGIZE)
 
@@ -35,10 +36,11 @@ Im ```half-filipino``` and tagalog **isnt** my first language lmao
 ![image](https://github.com/user-attachments/assets/4864f24b-ca6e-4e6a-8733-3ba53dc943aa)
 
 ![image](https://github.com/user-attachments/assets/fc23527f-2ca2-4ede-8089-5f179334baf0)
+*- me and that rat*
 
 
 = _ONLINE FAMILY_=
-```ALEX, MICHAEL, TECHNO, PANCAKE, ENDER, SASHY```
+```ALEX, MICHAEL, TREVOR, PANCAKE```
 
 ***(mostly the online ones on pt)***
 
