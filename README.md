@@ -17,6 +17,10 @@ Im ```half-filipino``` and english **is** my first language
 = I can be dry at some point in a conversation - im socially awkward soz
 *(im not THAT dry, i dont want anyone to think im boring)*
 
+- if u see **DNI** in my name, its a joke .
+
+i highly reccommend checking my straw page lol
+
 ***
 ## what are my super cool hobbies?
 
