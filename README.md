@@ -2,7 +2,7 @@
 - __IM TOM!__ OR JUST CALL ME ANY CHARACTERS I USE IN *PT*
 - star is fine too lmao, i dont mind at all :)
 
-![image description](https://64.media.tumblr.com/fdaaac9f6984d97b678959339a7dabbd/64ef976b6d7170d4-d0/s75x75_c1/fc690f2cfed7f109f70df800db5987a1ffecd615.gifv)MINOR ***(-18)*** ! **ANY AGE IS WELCOME** !
+![image description](https://64.media.tumblr.com/fdaaac9f6984d97b678959339a7dabbd/64ef976b6d7170d4-d0/s75x75_c1/fc690f2cfed7f109f70df800db5987a1ffecd615.gifv)MINOR ***(-18)*** ! **ANY AGE IS WELCOME TO INT** !
 
    = ```(I AM A CIS MALE, I DO **NOT** CARE IF YOU USE ANY PRONOUNS ON ME)```
   
@@ -18,6 +18,10 @@
 ```i highly reccommend checking my straw page for additional info!```
 
 = (AND IF I EVER MADE YOU FEEL ***UNCOMFORTABLE*** I REALLY APOLOGIZE)
+
+***
+
+- **IF YOU SEE A REALLY SIMILAR PONY/COS THAT I USE, PLEASE KNOW I ALWAYS KEEP MY GITHUB UP! I DO NOT COPY OTHERS AT ALL .**
 
 ***
 
