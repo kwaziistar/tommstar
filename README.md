@@ -15,29 +15,37 @@
 
 - if u see **DNI** in my name, its a joke PLEASE
 
-```i highly reccommend checking my straw page for additional info!```
+```i am okay with sexual jokes and i do not ship any characters in any of my interests```
 
 = (AND IF I EVER MADE YOU FEEL ***UNCOMFORTABLE*** I REALLY APOLOGIZE)
 
 ***
+# INTERESTS !!!
 
-- **IF YOU SEE A REALLY SIMILAR PONY/COS THAT I USE, PLEASE KNOW I ALWAYS KEEP MY GITHUB UP! I DO NOT COPY OTHERS AT ALL .**
+- SONIC THE HEDGEHOG
+- SIG GAYMES
+- THE STANLEY PARABLE(UD)
+- FNAF
 
+***OTHER INTERESTS THAT ARE RARE FROM ME...***
+
+- FUNTIME RAINBOW PARTY
+- HANNIBAL(NBC)
+- SPOOKY MONTH
+- FNF
+- BAD PARENTING(game)
+
+***
+
+- **I dont copy others' skins + i will always have my github up unless i am hiding skins!**
 ***
 
 # ASK TO BE ADDED BTW ! ![image description](https://64.media.tumblr.com/67c94628578bd0aead5c93842571363e/64ef976b6d7170d4-12/s75x75_c1/cbac7eb0c56fbec86fe45f9be242a74bcfd6611c.gifv)
 
-![image](https://github.com/user-attachments/assets/fc23527f-2ca2-4ede-8089-5f179334baf0)
-
-
-= _ONLINE FAMILY_ =
-
-
-```ALEX, MICHAEL, TREVOR, PANCAKE```
-
-(THANKS FOR KEEPING ME GOING!)
 
 = _AWESOME MANGOES_ =
+
+- ALEX . TREVOR . PANCAKE !!
 
 
 ```MOCHAMY SOOT . LEMON WAFFLES . BUBB . ASH . VIA```
