@@ -2,7 +2,7 @@
 - __IM TOM!__ OR JUST CALL ME ANY CHARACTERS I USE IN *PT*
 - star is fine too lmao, i dont mind at all :)
 
-![image description](https://64.media.tumblr.com/fdaaac9f6984d97b678959339a7dabbd/64ef976b6d7170d4-d0/s75x75_c1/fc690f2cfed7f109f70df800db5987a1ffecd615.gifv)MINOR ***(-18)*** ! **ANY AGE IS WELCOME TO INT** !
+![image description](https://64.media.tumblr.com/fdaaac9f6984d97b678959339a7dabbd/64ef976b6d7170d4-d0/s75x75_c1/fc690f2cfed7f109f70df800db5987a1ffecd615.gifv)MINOR ***(-18)*** !
 
    = ```(I AM A CIS MALE, I DO **NOT** CARE IF YOU USE ANY PRONOUNS ON ME)```
   
@@ -26,6 +26,7 @@
 - SIG GAYMES
 - THE STANLEY PARABLE(UD)
 - FNAF
+- OCTONAUTS (grew up with them!!)
 
 ***OTHER INTERESTS THAT ARE RARE FROM ME...***
 
@@ -33,7 +34,6 @@
 - HANNIBAL(NBC)
 - SPOOKY MONTH
 - FNF
-- BAD PARENTING(game)
 - etc...
 
 ***
@@ -49,7 +49,7 @@
 - ALEX . TREVOR . PANCAKE !!
 
 
-```MOCHAMY SOOT . LEMON WAFFLES . BUBB . ASH . VIA```
+```LEMON WAFFLES . BUBB . ASH . VIA```
 
 ***
 # SEE YOU AGAIN ![image description](https://64.media.tumblr.com/cc46789a6d8ecbce30b58fbd696b9d5e/3911cafc8a6a674c-9a/s100x200/c4590f6013127fa778c743dd16cb15d133cb3964.gifv)
