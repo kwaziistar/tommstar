@@ -6,13 +6,15 @@
   
  idont share personal info so getout lolololl
 
- . . . . . . . . ![image description](https://64.media.tumblr.com/faf9ec440be956767bfc281bdc076fbd/b2de55778d00d4c1-6c/s250x400/5de77ba7f3d94638d9a605c76691e81d4f5b9c87.pnj)
+AKbashauhiHIHSIAKDNAKDNKsnkNJk
 
 i am socially awkward soz
 
-i get freaked up sumtimes so tell me when to tone down the freakiness guh (if i make u uncofmrotbalel)
+(idontshipcharactersbtw)
 
-idontship characters guys 
+- i get freaked up sumtimes so tell me when to tone down the freakiness guh (if i make u uncofmrotbalel)
+
+- that was a joke im sorry
 
 ***
 # INTERESTS !!!
@@ -40,12 +42,10 @@ idontship characters guys
 
 = _AWESOME MANGOES_ =
 
-- my online family
+- my online family (lem, slate, etc.)
 
 
 ```LEMON WAFFLES . BUBB . ASH . VIA```
 
 ***
-# SEE YOU AGAIN [image description](https://64.media.tumblr.com/cc46789a6d8ecbce30b58fbd696b9d5e/3911cafc8a6a674c-9a/s100x200/c4590f6013127fa778c743dd16cb15d133cb3964.gifv)
-
-*(or not)*
+# SEE YOU NEVER AGAIN
