@@ -1,7 +1,6 @@
 ### PONYTOWN USE ONLY!
 - call me tom or star or something idk 
-![image description](https://64.media.tumblr.com/fdaaac9f6984d97b678959339a7dabbd/64ef976b6d7170d4-d0/s75x75_c1/fc690f2cfed7f109f70df800db5987a1ffecd615.gifv)MINOR ***(-18)*** !
-
+![image description](https://64.media.tumblr.com/fdaaac9f6984d97b678959339a7dabbd/64ef976b6d7170d4-d0/s75x75_c1/fc690f2cfed7f109f70df800db5987a1ffecd615.gifv) minor
    = ```cis male gangalang and half filo```
   
  idont share personal info so getout lolololl
