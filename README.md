@@ -41,10 +41,9 @@ i am socially awkward soz
 
 = _AWESOME MANGOES_ =
 
-- my online family (lem, slate, etc.)
+- my online family (lem, Trev, slate, etc.)
 
 
-```LEMON WAFFLES . BUBB . ASH . VIA```
 
 ***
 # SEE YOU NEVER AGAIN
