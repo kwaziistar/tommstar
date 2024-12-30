@@ -26,7 +26,6 @@ i am socially awkward soz
 
 ***OTHER INTERESTS THAT ARE RARE FROM ME...***
 
-- DANDYS WORLD (this game changed a lot since it came out wth)
 - HANNIBAL(NBC) (love this series)
 - SPOOKY MONTH (spoojymonth)
 - FNF (beep boop bop)
