@@ -15,6 +15,8 @@ i am socially awkward soz
 
 - that was a joke im sorry
 
+### I AM NOT A FICTKIN! I NORMALLY KIN CHARACTERS LIKE A NOMRAL PERSON OK
+
 ***
 # INTERESTS !!!
 
